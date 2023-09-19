@@ -1,0 +1,1 @@
+Gabarito dos exercícios disponíveis a partir do fim da aula de hoje.
